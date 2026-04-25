@@ -1,1 +1,1 @@
-won worlds think in 2025 and 2026 back to back
+won worlds think in 2025 (and 2026...)
